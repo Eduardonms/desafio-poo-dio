@@ -149,4 +149,4 @@ Se possível:<br>
 
 ------------
 
-Disponibilizado com ♥ por [cami-la](https://www.linkedin.com/in/cami-la/ "cami-la").
+Gratidão a [cami-la](https://www.linkedin.com/in/cami-la/ "cami-la") e a [DIO.ME](https://web.dio.me/ "DIO") .
